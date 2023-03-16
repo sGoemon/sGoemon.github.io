@@ -1,0 +1,1 @@
+# sGoemon.github.io
